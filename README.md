@@ -1,5 +1,5 @@
 # 墙裂地发布页
-**墙裂永久地址：**[https://墙裂.com](https://xn--noss43i.com "https://墙裂.com")
+**墙裂永久域名：**[https://墙裂.com](https://xn--noss43i.com "https://墙裂.com")
 
 请把这页内容复制到你的记事本上或妥善保存在其他地方比如有道云笔记，以免找不到我们！
 
