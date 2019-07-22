@@ -11,8 +11,6 @@
 
 [http://go.bjeyou.com](http://go.bjeyou.com "http://go.bjeyou.com")
 
-[https://qianglie.gq](https://qianglie.gq "https://qianglie.gq")
-
 ------------
 
 **备用地址（每日更新）：**
