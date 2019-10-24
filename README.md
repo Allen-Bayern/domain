@@ -9,7 +9,7 @@
 
 **防屏蔽地址：**
 
-[http://go.bjeyou.com](http://go.bjeyou.com "http://go.bjeyou.com")
+[https://go.qianglie.top](https://go.qianglie.top "https://go.qianglie.top")
 
 ------------
 
