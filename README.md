@@ -9,7 +9,7 @@
 
 **防屏蔽地址：**
 
-[https://go.qianglie.top](https://go.qianglie.top "https://go.qianglie.top")
+[http://go.qianglie.icu](http://go.qianglie.icu "http://go.qianglie.icu")
 
 ------------
 
