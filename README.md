@@ -9,7 +9,7 @@
 
 **防屏蔽地址：**
 
-[http://go.qianglie.icu](http://go.qianglie.icu "http://go.qianglie.icu")
+[http://t.smxhx.com](http://t.smxhx.com "http://t.smxhx.com")
 
 ------------
 
