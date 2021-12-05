@@ -1,5 +1,5 @@
 # 墙裂地址发布页
-**墙裂永久域名：**[https://墙裂.com](https://xn--noss43i.com "https://墙裂.com")
+**墙裂永久域名：**[https://www.qianglie.com](https://www.qianglie.com "https://www.qianglie.com")
 
 **获取最新域名可以发送邮件至 qianglie@mail.com**
 
