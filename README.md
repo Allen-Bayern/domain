@@ -11,7 +11,7 @@
 
 **防屏蔽地址：**
 
-[http://t.smxhx.com](http://t.smxhx.com "http://t.smxhx.com")
+[http://cn.qianglie.biz](http://cn.qianglie.biz "http://cn.qianglie.biz")
 
 ------------
 
