@@ -21,5 +21,4 @@
 
 [https://vk.com/qianglie](https://vk.com/qianglie "点此获取备用地址①")
 
-
 如果因各种原因，以上方法都不行，可以发送邮件到 qianglie#vk.com  # 换成 @ ，索取最新地址。
