@@ -1,4 +1,4 @@
-# 墙裂地址发布页 [![Twitter Follow](https://img.shields.io/twitter/follow/QiangLie?style=social)](https://twitter.com/qianglie)
+# 墙裂地址发布页 &middot; [![Twitter Follow](https://img.shields.io/twitter/follow/QiangLie?style=social)](https://twitter.com/qianglie)
 **墙裂永久域名：**[https://www.qianglie.com](https://www.qianglie.com "https://www.qianglie.com")
 
 **关注墙裂推特：**[@QiangLie](https://twitter.com/qianglie "https://twitter.com/qianglie")
