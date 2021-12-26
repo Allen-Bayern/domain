@@ -13,7 +13,7 @@
 
 **防屏蔽地址：**
 
-[http://cn.qianglie.biz](http://cn.qianglie.biz "http://cn.qianglie.biz")
+[https://cdn.qianglie.biz](https://cdn.qianglie.biz "https://cdn.qianglie.biz")
 
 ------------
 
