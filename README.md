@@ -14,7 +14,7 @@
 
 **防屏蔽地址：**
 
-[https://cdn.qianglie.biz](https://cdn.qianglie.biz "https://cdn.qianglie.biz")
+[https://www.qianglie.biz](https://www.qianglie.biz "https://www.qianglie.biz")
 
 ------------
 
