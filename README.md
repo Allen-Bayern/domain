@@ -8,7 +8,7 @@
 
 临时地址：[https://www.qianglie.cc](https://www.qianglie.cc "https://www.qianglie.cc")
 
-获取最新域名可以发送邮件至 qianglie@vk.com
+获取最新地址发送邮件至 qianglie@vk.com
 
 备用地址发布页：[https://vk.com/qianglie](https://vk.com/qianglie "https://vk.com/qianglie")
 
@@ -16,4 +16,4 @@
 
 ------------
 
-*更新于2022年8月24日*
+*更新于2022年8月25日*
