@@ -1,8 +1,8 @@
-# 墙裂地址发布页 &middot; [![Twitter Follow](https://img.shields.io/twitter/follow/QiangLie?style=social)](https://twitter.com/qianglie)
+# 墙裂地址发布页
 
-**墙裂永久域名：**[https://www.qianglie.com](https://www.qianglie.com "https://www.qianglie.com")
+墙裂永久域名：[https://www.qianglie.com](https://www.qianglie.com "https://www.qianglie.com")
 
-**关注墙裂推特：**[https://twitter.com/qianglie](https://twitter.com/qianglie "https://twitter.com/qianglie")
+关注墙裂推特：[https://twitter.com/qianglie](https://twitter.com/qianglie "https://twitter.com/qianglie")
 
 **永久域名被大陆地区封锁，请通过VPN或以下方式访问墙裂**
 
@@ -22,4 +22,6 @@
 
 [https://vk.com/qianglie](https://vk.com/qianglie "点此获取备用地址①")
 
-如果因各种原因，以上方法都不行，可以发送邮件到 qianglie#vk.com  # 换成 @ ，索取最新地址。
+------------
+
+*更新于2022年8月24日*
