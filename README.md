@@ -1,8 +1,8 @@
 # 墙裂地址发布页
 
-墙裂永久域名：[https://www.qianglie.com](https://www.qianglie.com "https://www.qianglie.com")
+永久域名：[https://www.qianglie.com](https://www.qianglie.com "https://www.qianglie.com")
 
-关注墙裂推特：[https://twitter.com/qianglie](https://twitter.com/qianglie "https://twitter.com/qianglie")
+关注推特：[https://twitter.com/qianglie](https://twitter.com/qianglie "https://twitter.com/qianglie")
 
 **永久域名被大陆地区封锁，请通过VPN或以下方式访问墙裂**
 
